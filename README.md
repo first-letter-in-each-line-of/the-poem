@@ -1,4 +1,7 @@
 ## About The Project
 
-bitch
-
+moo im a cow
+you are not
+pee is wet
+for real tho
+poop is not
