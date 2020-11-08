@@ -5,8 +5,3 @@ you are not<br />
 pee is wet<br />
 for real tho<br />
 poop is not<br />
-
-
-## A quote
-
-keep the @
